@@ -1,2 +1,0 @@
-# NPT-TP-CHEST-
-NPT HUB 
